@@ -16,8 +16,7 @@ Joey
 
 
 Miles
-
-
+![heart shaped waffle iron opening](https://64.media.tumblr.com/670c693dbeb396cfd1c8390868901368/9c83505f6c34d27f-a6/s500x750/3611fecfc73b9fad3ca7f022b70177a78a475c13.gifv)
 
 
 Mike
